@@ -1,2 +1,2 @@
-# Ferhat-ak-r
+# Ferhat cakir
 Rekabet Kurumu Staj Projesi
